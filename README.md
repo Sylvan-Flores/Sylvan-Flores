@@ -11,7 +11,7 @@ In the meanwhile you can look at my (outdated) [Carrd](https://sylvan-flores.car
 
 ## Before you follow/interact
 * I'm a little shy at first and most likely would never initiate a conversation
-* I'm absolutely terrible at social cues, it would helps me *a lot* to let me know if i accidentally offend or hurt you
+* I'm absolutely terrible at social cues, it would help me *a lot* to let me know if i accidentally offend or hurt you
 * Trust me my chatting style isn't like what you're seeing, i tend to use quite a lot of capitalized words, emojis, emoticons and exclaimations when talking 😭 (i don't use tonetags much but i can if you need me to)
 
 ## DNI if you...
