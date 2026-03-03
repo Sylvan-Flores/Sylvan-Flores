@@ -29,7 +29,7 @@ In the meanwhile you can look at my (outdated) [Carrd](https://sylvan-flores.car
 * We have mutual friend(s) or we're moots
 
 ## Fandoms, ships, etc
-* It's in the Sylvan-Flores repository, just click and view the files
+* It's in the Sylvan-Flores repository, just click and view the files, or just click one below if you're a little lost
 * [Games](game-các-thứ.md)
 * [Other media](truyện-phim-anime-etc.md)
 * [Ships](Ship.md)
