@@ -29,4 +29,4 @@ In the meanwhile you can look at my (outdated) [Carrd](https://sylvan-flores.car
 * We have mutual friend(s) or we're moots
 
 ## Fandoms, ships, fav/comf characters
-* In my Carrd or just click [here](https://sylvans-fd-ships-fav.carrd.co/) as a shortcut (the fandom list is old, i have a new one in my Facebook account but it's in Vietnamese 😔)
+* It's in the Sylvan-Flores repository, just click and view the files
