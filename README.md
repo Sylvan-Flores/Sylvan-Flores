@@ -30,3 +30,6 @@ In the meanwhile you can look at my (outdated) [Carrd](https://sylvan-flores.car
 
 ## Fandoms, ships, etc
 * It's in the Sylvan-Flores repository, just click and view the files
+* [Games](game-các-thứ.md)
+* [Other media](truyện-phim-anime-etc.md)
+* [Ships](Ship.md)
