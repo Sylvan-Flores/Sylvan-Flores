@@ -28,5 +28,5 @@ In the meanwhile you can look at my (outdated) [Carrd](https://sylvan-flores.car
 * I don't have "DNI", "DNIUF", "DNIUID" or things alike in my skin name (this one is for pony town obviously)
 * We have mutual friend(s) or we're moots
 
-## Fandoms, ships, fav/comf characters
+## Fandoms, ships, etc
 * It's in the Sylvan-Flores repository, just click and view the files
