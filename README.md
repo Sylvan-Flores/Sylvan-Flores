@@ -1,7 +1,7 @@
 ## Well hello there!!
 Welcome to my profile, as you can see it's still ehh quite plain. But i'm working on it (*probably*, yeah)
 
-In the meanwhile you can look at my (outdated) [Carrd](https://sylvan-flores.carrd.co/) or just take a quick look at the introduction i made in like half an hour or sth
+In the meanwhile you can take a quick look at the introduction i made in like half an hour or sth
 
 ## Basic information
 * As for names, you may refer to me as "Sylvan", or just "Syl" for short (nicknames and petnames are alr, just don't use anything inappropriate or disrespectful)
@@ -29,7 +29,7 @@ In the meanwhile you can look at my (outdated) [Carrd](https://sylvan-flores.car
 * We have mutual friend(s) or we're moots
 
 ## Fandoms, ships, etc
-* It's in the Sylvan-Flores repository, just click and view the files, or just click one below if you're a little lost
+* It's in the Sylvan-Flores repository, just click and view the files, or click one below if you're a little lost
 * [Games](game-các-thứ.md)
 * [Other media](truyện-phim-anime-etc.md)
 * [Ships](Ship.md)
