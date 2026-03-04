@@ -16,7 +16,7 @@
 * Mouthwashing
 * Deadplate, married in red, DDLC
 * Degree of lewdity (bao gồm cả bản plus)
-* Touchstarved, When stars collide, Our life, Error143, Lost in limbo, Cupid's kiss
+* Touchstarved, When stars collide, Our life, Error143, Lost in limbo, Cupid's kiss, Broken colors, The kid at the back
 * Yttd
 * John doe, The freak circus, Chromatic agape, Invite me in
 * Project eden's garden
@@ -24,5 +24,5 @@
 * NSO
 * It's not me, it's my basement
 * Her tears were my light, Mushroom musume
-
 * Nói chung là mình đu game indie RPG, visual novel và một nùi game chạy bằng Twine trên itch
+
