@@ -1,24 +1,23 @@
 ## Manhwa, manhua, webcomic
 
 * Countdown to countdown
-* Lout of count's family (dự định đọc sang novel)
+* Lout of count's family (planning to read novel)
 * Ghostblade
 * The interpretation of shadows
-* I'm not that kind of talent (vẫn đang đọc manhwa, đừng spoil plot ạ 😭)
+* I'm not that kind of talent (please no spoilers for this one)
 * The greatest estate developer
 * On the way to meet mom
-* Omniscient reader's viewpoint (đang đọc)
-* Ranfren (lâu quá ko động vào nên chỉ nhớ sương sương th)
+* Omniscient reader's viewpoint (reading)
 
 ***
 
 ## Anime, manga
 
-* Seraph of the end (anime lẫn manga)
+* Seraph of the end (anime, manga)
 * To your eternity (anime, manga)
-* Land of the lustrous (anime, sẽ qua manga)
-* Hell's paradise (season 1, có lẽ sẽ cày lại luôn)
-* Kiznaiver (lâu r ko động vào nên quên gần hết nội dung r)
+* Land of the lustrous (anime, would read manga)
+* Hell's paradise (season 1 anime and tbh i don't remember a single thing)
+* Kiznaiver (been years, what i remember is uhh, too little)
 * Kimera
 
 ***
@@ -27,21 +26,22 @@
 
 * Ramshackle
 * TADC
-* Lackadaisy (có dự định cày)
+* Lackadaisy (might watch it idk)
 * Knights of guinevere
 * Gluttomy
 * Heathens
-* Nhìn chung là toàn indie animation
+* I like indie animation series alr
 
 ***
 
 ## Donghua
 
-* To be hero X (nào hết lười cày tiếp 🔥)
+* To be hero X (yikes i keep forgetting to watch it)
 
 ***
 
 ## Musical
 
 * Ride the cyclone
+
 
