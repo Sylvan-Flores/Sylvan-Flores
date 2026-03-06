@@ -10,6 +10,8 @@
 * Omniscient reader's viewpoint (đang đọc)
 * Ranfren (lâu quá ko động vào nên chỉ nhớ sương sương th)
 
+***
+
 ## Anime, manga
 
 * Seraph of the end (anime lẫn manga)
@@ -18,6 +20,8 @@
 * Hell's paradise (season 1, có lẽ sẽ cày lại luôn)
 * Kiznaiver (lâu r ko động vào nên quên gần hết nội dung r)
 * Kimera
+
+***
 
 ## Cartoon
 
@@ -29,10 +33,15 @@
 * Heathens
 * Nhìn chung là toàn indie animation
 
+***
+
 ## Donghua
 
 * To be hero X (nào hết lười cày tiếp 🔥)
 
+***
+
 ## Musical
 
 * Ride the cyclone
+
