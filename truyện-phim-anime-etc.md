@@ -8,6 +8,7 @@
 * The greatest estate developer
 * On the way to meet mom
 * Omniscient reader's viewpoint (reading)
+* Ranfren (Not really into it like i used to)
 
 ***
 
@@ -45,6 +46,7 @@
 ## Musical
 
 * Ride the cyclone
+
 
 
 
