@@ -30,6 +30,8 @@
 * Knights of guinevere
 * Gluttomy
 * Heathens
+* Poppin-play kitchen
+* ERSATZ
 * I like indie animation series alr
 
 ***
@@ -43,5 +45,6 @@
 ## Musical
 
 * Ride the cyclone
+
 
 
