@@ -27,7 +27,7 @@ In the meanwhile you can take a quick look at the introduction i made in like ha
 * Fetishize gay/lesbian relationships, disability
 * Romanticize mental illness/medical conditions
 * Misgender people despite being corrected
-* Asking genderqueer people their biological gender (unless they're alr with it but tbh i'd still give you side eyes)
+* Ask genderqueer people their biological gender (unless they're alr with it but tbh i'd still give you side eyes)
 * Support, justify any/all of the above
 
 ***
