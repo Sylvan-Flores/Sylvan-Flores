@@ -44,3 +44,8 @@ In the meanwhile you can take a quick look at the introduction i made in like ha
 * [Games](game-các-thứ.md)
 * [Other media](truyện-phim-anime-etc.md)
 * [Ships](Ship.md)
+
+***
+
+## Things i made:
+(to be added)
