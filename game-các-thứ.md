@@ -5,7 +5,7 @@
 * Danganronpa (mostly sdr2)
 * The arcana
 * Honkai star rail
-* R1999 (newbie btw)
+* R1999 (newbie btw, i'm lacking lore 😔)
 * OFF, Hello charlotte, Oneshot (still playing)
 * Dweller's empty path, Escaped chasm
 * In stars and time
@@ -15,7 +15,6 @@
 * Little misfortune, Limbo
 * Mouthwashing
 * Deadplate, married in red, DDLC
-* Degree of lewdity (plus mod included, minors dni for this one)
 * Touchstarved, When stars collide, Our life, Error143, Lost in limbo, Cupid's kiss, Broken colors, The kid at the back
 * Yttd
 * John doe, The freak circus, Chromatic agape, Invite me in
