@@ -1,6 +1,6 @@
-## Some games that i play
+## Some games that i play/enjoy
 
-* UNDERTALE, DELTARUNE
+* UNDERTALE, DELTARUNE, UNDERVERSE
 * OMORI
 * Danganronpa (mostly sdr2)
 * The arcana
