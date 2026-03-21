@@ -48,4 +48,4 @@ In the meanwhile you can take a quick look at the introduction i made in like ha
 ***
 
 ## Things i made:
-(to be added)
+* Artworks: Here's a [Carrd](https://sylvans-artworks.carrd.co/) that shows some of the stuff i drew, most of them are on my Tumblr as well
