@@ -4,7 +4,7 @@
 * OMORI
 * Danganronpa (mostly sdr2)
 * The arcana
-* Honkai star rail
+* Honkai star rail (UID:840684831, Asia)
 * R1999 (newbie btw, i'm lacking lore 😔)
 * OFF, Hello charlotte, Oneshot (still playing)
 * Dweller's empty path, Escaped chasm
