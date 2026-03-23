@@ -16,6 +16,7 @@ In the meanwhile you can take a quick look at the introduction i made in like ha
 * I'm a little shy at first and most likely would never initiate a conversation
 * I'm absolutely terrible at social cues, it would help me *a lot* to let me know if i accidentally offend or hurt you
 * Trust me my chatting style isn't like what you're seeing, i tend to use quite a lot of capitalized words, emojis, emoticons and exclaimations when talking 😭 (i don't use tonetags much but i can if you need me to)
+* All my words of affection are entirely platonic, tell me if it discomfort you
 
 ***
 
@@ -26,9 +27,18 @@ In the meanwhile you can take a quick look at the introduction i made in like ha
 * Are close-minded, ignorant, hypocritical, someone with double-standards
 * Fetishize gay/lesbian relationships, disability
 * Romanticize mental illness/medical conditions
+* Fake mental illness
 * Misgender people despite being corrected
 * Ask genderqueer people their biological gender (unless they're alr with it but tbh i'd still give you side eyes)
 * Support, justify any/all of the above
+
+***
+
+## IWC/On thin ice:
+* Incest and pedo shippers
+* System
+* Fictkins
+* Yumeshippers
 
 ***
 
