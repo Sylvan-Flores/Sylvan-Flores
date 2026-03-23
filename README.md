@@ -37,6 +37,7 @@ In the meanwhile you can take a quick look at the introduction i made in like ha
 ## IWC/On thin ice:
 * Incest and pedo shippers
 * Fictkins
+* People who ship *actual people* together (unless they're already in a *healthy, happy* relationship then ig it's alr)
 * Yumeshippers
 
 ***
