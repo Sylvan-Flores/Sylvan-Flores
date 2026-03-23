@@ -4,7 +4,6 @@
 * Hyuluka (ALNST)
 * Rosemmary (Hero/Mari, OMORI)
 * Phainaxa, Aventio (HSR)
-* Glyde x Appel (Switch sure, Gluttomy)
 * Yuumika (OnS)
 * Kaimon (PJEG)
 
