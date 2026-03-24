@@ -37,7 +37,7 @@ In the meanwhile you can take a quick look at the introduction i made in like ha
 ## IWC/On thin ice:
 * Incest and pedo shippers
 * System
-* People who ship *actual people* together (unless they're already in a *healthy, happy* relationship and are fine with that then ig it's alr)
+* People who ship *actual people* together (unless they're already in a *healthy, happy relationship and are fine with being shipped* then ig it's alr)
 
 ***
 
