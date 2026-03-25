@@ -1,11 +1,11 @@
 ## Ship
 
-* Hinakoma (switch is alr), Kamukoma (SDR2)
-* Hyuluka (ALNST)
-* Rosemmary (Hero/Mari, OMORI)
-* Phainaxa, Aventio (HSR)
-* Yuumika (OnS)
-* Kaimon (PJEG)
+* Danganronpa: Hinakoma (switch is alr), Kamukoma
+* ALNST: Hyuluka
+* OMORI: Rosemmary (Hero/Mari)
+* HSR: Phainaxa, Ahavili
+* OnS: Yuumika
+* PJEG: Kaimon
 
 ***
 
