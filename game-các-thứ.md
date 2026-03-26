@@ -11,8 +11,7 @@
 * In stars and time
 * A date with death, 14dwy (again, still playing)
 * Yume nikki, Celeste, Hollow knight, Saihate station, Cave story, Homestuck, Cold front, Nine sols, Zeno remake (i kinda want to try those...)
-* Little nightmares (I, II)
-* Little misfortune, Limbo
+* Pokemon black & white
 * Mouthwashing
 * Deadplate, married in red, DDLC
 * Touchstarved, When stars collide, Our life, Error143, Lost in limbo, Cupid's kiss, Broken colors, The kid at the back
