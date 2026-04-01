@@ -15,7 +15,7 @@ In the meanwhile you can take a quick look at the introduction i made in like ha
 ## Before you follow/interact
 * I'm a little shy at first and most likely would never initiate a conversation
 * I'm absolutely terrible at social cues, it would help me *a lot* to let me know if i accidentally offend or hurt you
-* Trust me my chatting style isn't like what you're seeing, i tend to use quite a lot of capitalized words, emojis, emoticons and exclaimations when talking (i don't use tonetags much but i can if you need me to)
+* I tend to use quite a lot of capitalized words, emojis, emoticons and exclaimations when talking (i don't use tonetags much but i can if you need me to)
 * All my words of affection are entirely platonic, lmk if it discomfort you
 
 ***
