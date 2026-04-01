@@ -1,7 +1,6 @@
 ## Ship
 
 * Danganronpa: Hinakoma, Kamukoma
-* ALNST: Hyuluka
 * OMORI: Rosemmary (Hero/Mari)
 * HSR: Phainaxa, Ahavili
 * OnS: Yuumika
