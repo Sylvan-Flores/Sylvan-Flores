@@ -1,6 +1,6 @@
 ## Ship
 
-* Danganronpa: Hinakoma (switch is alr), Kamukoma
+* Danganronpa: Hinakoma, Kamukoma
 * ALNST: Hyuluka
 * OMORI: Rosemmary (Hero/Mari)
 * HSR: Phainaxa, Ahavili
