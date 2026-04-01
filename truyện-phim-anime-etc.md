@@ -30,10 +30,9 @@
 * Lackadaisy (might watch it idk)
 * Knights of guinevere
 * Gluttomy
-* Heathens
 * Poppin-play kitchen
 * ERSATZ
-* I like indie animation series alr
+* I mostly watch indie series
 
 ***
 
