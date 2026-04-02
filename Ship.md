@@ -2,7 +2,7 @@
 
 * Danganronpa: Hinakoma, Kamukoma
 * OMORI: Rosemmary (Hero/Mari)
-* HSR: Phainaxa, Ahavili
+* HSR: Phainaxa, Myphainaxa/Phaideinaxa, Ahavili
 * OnS: Yuumika
 * PJEG: Kaimon
 
