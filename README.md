@@ -20,7 +20,7 @@ In the meanwhile you can take a quick look at the introduction i made in like ha
 
 ***
 
-## DNI if you...
+## I'd rather you don't talk to or befriend me if you
 * Are a homophobe, transphobe, racist, ableistic, misogynistic, etc...
 * Are a pedo, sexualize minors
 * Invalidate people's/one's identity
@@ -34,8 +34,8 @@ In the meanwhile you can take a quick look at the introduction i made in like ha
 
 ***
 
-## IWC/On thin ice:
-* Incest and pedo ships shippers
+## IWC/On thin ice
+* Incest and pedo ships shippers (i wanted to put darkships here at first but didn't as i can still tolerate toxic/abusive ships somewhat, just not my cup of tea though but hey you do you)
 * System
 * People who ship *actual people* together (unless they're already in a *healthy, happy relationship and are fine with being shipped* then ig it's alr)
 
