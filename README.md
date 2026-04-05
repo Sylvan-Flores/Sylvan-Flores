@@ -1,6 +1,7 @@
-Welcome to my profile, as you can see it's still ehh quite plain. But i'm working on it (*probably*, yeah)
+# IMPORTANT:
+https://www.change.org/p/get-fauzan-achmad-faza-blacklisted-from-iyuno
 
-In the meanwhile you can take a quick look at the introduction i made in like half an hour or sth
+(there's already an explaination detailed in that site, if you could please enter and read)
 
 ***
 
