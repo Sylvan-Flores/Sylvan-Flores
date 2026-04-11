@@ -8,6 +8,7 @@
 * The greatest estate developer
 * On the way to meet mom
 * Omniscient reader's viewpoint (reading)
+* My nameless vampire is quite homeless
 
 ***
 
