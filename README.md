@@ -18,6 +18,7 @@
 * I'm absolutely terrible at social cues, it would help me *a lot* to let me know if i accidentally offend or hurt you
 * I tend to use quite a lot of capitalized words, emojis, emoticons and exclaimations when talking (i don't use tonetags much but i can if you need me to)
 * All my words of affection are entirely platonic, lmk if it discomfort you
+* Pony town: Making a 1:1 copy of my skin or posting it on other media? Absolutely not, please don't do that (unless i'm gifting you or sth). Taking inspo/using my skins as ref? Sure but i prefer you ask me first
 
 ***
 
