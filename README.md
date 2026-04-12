@@ -38,6 +38,7 @@
 ## IWC/On thin ice
 * Incest and pedo ships shippers (i wanted to put darkships here at first but didn't as i can still tolerate toxic/abusive ships somewhat, just not my cup of tea though but hey you do you)
 * System
+* Yumeshippers (especially those who go around harassing others just because they like their f/o, and fyi i don't yumeship)
 * People who ship *actual people* together (unless they're already in a *healthy, happy relationship and are fine with being shipped* then ig it's alr)
 
 ***
