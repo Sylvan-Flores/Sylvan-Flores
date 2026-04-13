@@ -18,6 +18,7 @@
 * To your eternity (anime, manga)
 * Welcome to demon school! Iruma-kun (anime, manga)
 * Land of the lustrous (anime, would read manga)
+* Witch hat atelier
 * Kiznaiver (been years, what i remember is uhh, too little)
 * Kimera
 
