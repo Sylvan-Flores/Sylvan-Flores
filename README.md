@@ -1,10 +1,3 @@
-# IMPORTANT:
-## https://www.change.org/p/get-fauzan-achmad-faza-blacklisted-from-iyuno
-
-## (there's already an explaination detailed in that site, if you could please enter and read)
-
-***
-
 ## Basic information
 * As for names, you may refer to me as "Sylvan", or just "Syl" for short (nicknames and petnames are alr, just don't use anything inappropriate or disrespectful)
 * I use both he/him & they/them, you can see more in my [Pronouns page](https://en.pronouns.page/@Sylvan_Flores) (more stuff in there too)
