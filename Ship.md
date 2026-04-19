@@ -1,6 +1,7 @@
 ## Ship
 
 * Danganronpa: Hinakoma, Kamukoma
+* WHA: Orufrey
 * OMORI: Rosemmary (Hero/Mari)
 * HSR: Phainaxa, Myphainaxa/Phaideinaxa, Ahavili
 * OnS: Yuumika
