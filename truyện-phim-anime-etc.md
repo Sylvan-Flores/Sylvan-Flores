@@ -7,7 +7,7 @@
 * I'm not that kind of talent (please no spoilers for this one)
 * The greatest estate developer
 * On the way to meet mom
-* Omniscient reader's viewpoint (reading)
+* Omniscient reader's viewpoint (manhwa)
 * My nameless vampire is quite homeless
 
 ***
@@ -18,7 +18,7 @@
 * To your eternity (anime, manga)
 * Welcome to demon school! Iruma-kun (anime, manga)
 * Land of the lustrous (anime, would read manga)
-* Witch hat atelier
+* Witch hat atelier (anime, manga)
 * Kiznaiver (been years, what i remember is uhh, too little)
 * Kimera
 
@@ -28,7 +28,6 @@
 
 * Ramshackle
 * TADC
-* Lackadaisy (might watch it idk)
 * Knights of guinevere
 * Gluttomy
 * Poppin-play kitchen
