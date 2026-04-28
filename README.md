@@ -46,8 +46,8 @@
 
 ## Fandoms, ships, etc
 * It's in the Sylvan-Flores repository, just click and view the files, or click one below if you're a little lost
-* [Games](game-các-thứ.md)
-* [Other media](truyện-phim-anime-etc.md)
+* [Games](game.md)
+* [Other media](other-media.md)
 * [Ships](Ship.md)
 
 ***
