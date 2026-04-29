@@ -14,9 +14,8 @@
 * Pokemon black & white
 * Mouthwashing
 * Deadplate, married in red, DDLC
-* Touchstarved, When stars collide, Our life, Error143, Lost in limbo, Cupid's kiss, Broken colors, The kid at the back
+* Touchstarved, When stars collide, Our life, Error143, Lost in limbo, Cupid's kiss, Broken colors, The kid at the back, Chromatic agape
 * Yttd
-* John doe, The freak circus, Chromatic agape, Invite me in
 * Project eden's garden
 * The Scourge
 * Before your eyes
