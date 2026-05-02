@@ -2,7 +2,7 @@
 
 * Danganronpa: ***Hinakoma***, Kamukoma
 * WHA: ***Orufrey***
-* HSR: Phainaxa, Myphainaxa/Phaideinaxa, Ahavili
+* HSR: Phainaxa, Mynaxa, Myphainaxa/Phaideinaxa, Ahavili
 * OnS: Yuumika
 * PJEG: Kaimon
 
