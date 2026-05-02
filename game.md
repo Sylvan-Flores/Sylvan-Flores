@@ -9,8 +9,7 @@
 * OFF, Hello charlotte, Oneshot (still playing)
 * Dweller's empty path, Escaped chasm
 * In stars and time
-* A date with death, 14dwy (again, still playing)
-* Yume nikki, Celeste, Hollow knight, Saihate station, Cave story, Homestuck, Cold front, Nine sols, Zeno remake (i kinda want to try those...)
+* A date with death (again, still playing)
 * Pokemon black & white
 * Mouthwashing
 * Deadplate, married in red, DDLC
@@ -19,7 +18,5 @@
 * Project eden's garden
 * The Scourge
 * Before your eyes, A kiss from death (the Twine IF game one)
-* NSO
-* It's not me, it's my basement
 * Her tears were my light, Mushroom musume
 * Generally indie RPGs, visual novels and a ton of Twine games on itch
