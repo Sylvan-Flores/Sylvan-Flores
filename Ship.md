@@ -1,6 +1,6 @@
 ## Ship
 
-* Danganronpa: ***Hinakoma***, Kamukoma
+* Danganronpa: Hinakoma, Kamukoma
 * WHA: ***Orufrey***
 * HSR: Phainaxa, Rationaxa, Myphainaxa/Phaideinaxa, Ahavili
 * OnS: Yuumika
