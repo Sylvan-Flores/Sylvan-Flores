@@ -9,11 +9,11 @@
 * OFF, Hello charlotte, Oneshot (still playing)
 * Dweller's empty path, Escaped chasm
 * In stars and time
-* A date with death (again, still playing)
+* ***A date with death*** (again, still playing, i'll finish it i swear)
 * Pokemon black & white
 * Mouthwashing
 * Deadplate, married in red, DDLC
-* Touchstarved, When stars collide, Our life (both 1&2), Error143, Lost in limbo, Cupid's kiss, Broken colors, The kid at the back, Chromatic agape
+* ***Touchstarved***, When stars collide, Our life (both 1&2), Error143, Lost in limbo, Cupid's kiss, Broken colors, The kid at the back, Chromatic agape
 * Yttd
 * Project eden's garden
 * The Scourge
