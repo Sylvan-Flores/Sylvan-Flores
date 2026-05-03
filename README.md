@@ -45,7 +45,7 @@
 ***
 
 ## Fandoms, ships, etc
-* It's in the Sylvan-Flores repository, just click and view the files, or click one below if you're a little lost
+* It's in the Sylvan-Flores repository, just click and view the files, or click one below if you're a little lost (***bold and italic*** means current hyperfixation)
 * [Games](game.md)
 * [Other media](other-media.md)
 * [Ships](Ship.md)
