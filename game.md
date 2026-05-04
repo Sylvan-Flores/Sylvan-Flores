@@ -3,7 +3,7 @@
 * UNDERTALE, DELTARUNE
 * OMORI
 * Danganronpa (mostly sdr2)
-* The arcana
+* ***The arcana***
 * Honkai star rail
 * R1999 (newbie btw, i'm lacking lore 😔)
 * OFF, Hello charlotte, Oneshot (still playing)
