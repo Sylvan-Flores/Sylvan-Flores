@@ -53,4 +53,4 @@
 ***
 
 ## Things i made:
-* Artworks: Here's a [Carrd](https://sylvans-artworks.carrd.co/) that shows some of the stuff i drew, most of them are on my Tumblr (sylvan-flores) as well
+* (To be added)
