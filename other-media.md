@@ -10,6 +10,7 @@
 * Omniscient reader's viewpoint (manhwa)
 * ***My nameless vampire is quite homeless***
 * A date with death zero
+* The ember knight
 
 ***
 
