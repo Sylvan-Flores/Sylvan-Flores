@@ -10,6 +10,7 @@
 * Dweller's empty path, Escaped chasm
 * In stars and time
 * ***A date with death*** (again, still playing, i'll finish it i swear)
+* A date with death 2 (demo)
 * Pokemon black & white
 * Mouthwashing
 * Deadplate, married in red, DDLC
@@ -18,5 +19,6 @@
 * Project eden's garden
 * The Scourge
 * Before your eyes, A kiss from death (the Twine IF game one)
+* Degrees of lewdity (minors ***STRICTLY DNI*** for this one)
 * Her tears were my light, Mushroom musume, 7 years from now
 * Generally indie RPGs, visual novels and a ton of Twine games on itch
