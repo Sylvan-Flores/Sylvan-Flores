@@ -1,4 +1,4 @@
-## Some games that i play/enjoy
+## Games (either i played them myself or i watched a playthrough)
 
 * UNDERTALE, DELTARUNE
 * OMORI
@@ -9,7 +9,7 @@
 * OFF, Hello charlotte, Oneshot (still playing)
 * Dweller's empty path, Escaped chasm
 * In stars and time
-* ***A date with death*** (again, still playing, i'll finish it i swear)
+* A date with death (again, still playing, i'll finish it i swear)
 * A date with death 2 (demo)
 * Pokemon black & white
 * Mouthwashing
