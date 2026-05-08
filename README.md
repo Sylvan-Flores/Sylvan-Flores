@@ -46,8 +46,3 @@
 * [Games](game.md)
 * [Other media](other-media.md)
 * [Ships](Ship.md)
-
-***
-
-## Things i made:
-* (To be added)
