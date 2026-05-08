@@ -8,9 +8,9 @@
 * The greatest estate developer
 * On the way to meet mom
 * Omniscient reader's viewpoint (manhwa)
-* ***My nameless vampire is quite homeless***
+* My nameless vampire is quite homeless
 * A date with death zero
-* The ember knight
+* ***The ember knight***
 
 ***
 
