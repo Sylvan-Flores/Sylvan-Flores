@@ -3,5 +3,5 @@
 </p>
 
 <div align="center">
-  Please read my Strawpage before you interact
+  This is still a wip...
 </div>
