@@ -20,6 +20,5 @@
 * The Scourge
 * Before your eyes, A kiss from death (the Twine IF game one)
 * Her tears were my light, Mushroom musume, 7 years from now
-* Cooking mama
 * MementoMori
 * Generally indie RPGs, visual novels and a ton of Twine games on itch
