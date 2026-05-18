@@ -5,7 +5,7 @@
 * Danganronpa (mostly sdr2)
 * The arcana
 * Honkai star rail
-* R1999 (newbie btw, i'm lacking lore 😔)
+* R1999 (not a single grasp on lore and i have no fucking idea what i'm doing...i might need a mentor, or multiple mentors)
 * OFF, Hello charlotte, Oneshot (still playing)
 * Dweller's empty path, Escaped chasm
 * In stars and time
