@@ -1,10 +1,10 @@
 ## Manhwa, manhua, webcomic
 
 * Countdown to countdown
-* Lout of count's family (planning to read novel)
+* Lout of count's family (manhwa)
 * Ghostblade
 * The interpretation of shadows
-* I'm not that kind of talent (please no spoilers for this one)
+* I'm not that kind of talent (manhwa)
 * The greatest estate developer
 * On the way to meet mom
 * Omniscient reader's viewpoint (manhwa)
