@@ -14,7 +14,7 @@
 * Pokemon black & white
 * Mouthwashing
 * Deadplate, married in red, DDLC
-* ***Touchstarved***, When stars collide, Our life (both 1&2), Error143, Lost in limbo, Cupid's kiss, Broken colors, The kid at the back, Chromatic agape
+* Touchstarved, When stars collide, Our life (both 1&2), Error143, Lost in limbo, Cupid's kiss, Broken colors, The kid at the back, Chromatic agape
 * Yttd
 * Project eden's garden
 * Degrees of lewdity (minors **STRICTLY DNI** for this one)
