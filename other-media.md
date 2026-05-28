@@ -22,12 +22,10 @@
 * Welcome to demon school! Iruma-kun (anime, manga)
 * Land of the lustrous (anime)
 * ***Witch hat atelier*** (anime, manga)
+* Veil
 * Kimera
 
 ***
-
-## Donghua
-* The legend of Hei
 
 ## Cartoon
 
