@@ -2,14 +2,12 @@
   <img src="https://i.ibb.co/S4tXNsys/yeehaw.png"/>
 </p>
 
-<h3>
 <p align="center">
   "ɪ ᴡᴏᴜʟᴅ'ᴠᴇ ꜱᴛᴀʏᴇᴅ ꜰᴀʀ ᴀᴡᴀʏ ꜰʀᴏᴍ ʏᴏᴜ...
 </p>
 <p align="center">
   ...ᴛʜᴇ ꜱᴋʏ'ꜱ ᴋɪɴᴅᴇꜱᴛ, ᴍᴏꜱᴛ ʀᴀᴅɪᴀɴᴛ ꜱᴛᴀʀ."
 </p>
-</h3>
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=Sylvan-Flores&color=lightgrey&style=flat&label=APPRENTICE+WITCHES&abbreviated=true">
