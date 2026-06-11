@@ -23,6 +23,7 @@
 * Land of the lustrous (anime)
 * ***Witch hat atelier*** (anime, manga)
 * Veil
+* ***Mononoke*** (2007)
 * Kimera
 
 ***
