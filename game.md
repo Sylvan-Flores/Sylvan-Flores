@@ -17,7 +17,7 @@
 * ***Touchstarved***, When stars collide, Our life (both 1&2), Error143, Lost in limbo, Cupid's kiss, Broken colors, The kid at the back, Chromatic agape
 * Yttd
 * Project eden's garden
-* Degrees of lewdity (minors <ins>**STRICTLY DNI**</ins> for this one)
+* Degrees of lewdity, course of temptation (minors <ins>**STRICTLY DNI**</ins> for those)
 * The Scourge
 * Before your eyes, A kiss from death (the Twine IF game one)
 * Her tears were my light, Mushroom musume, 7 years from now
