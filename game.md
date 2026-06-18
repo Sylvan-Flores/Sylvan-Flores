@@ -3,7 +3,7 @@
 * UNDERTALE, DELTARUNE
 * OMORI
 * Danganronpa (mostly sdr2)
-* ***The arcana*** (i need more content of this game, i've played *every single* route and side stories, i **refuse** to go on dorian)
+* The arcana (i need more content of this game, i've played *every single* route and side stories, i **refuse** to go on dorian)
 * Honkai star rail
 * R1999 (not a single grasp on lore and i have no fucking idea what i'm doing...i might need a mentor, or multiple mentors)
 * OFF, Hello charlotte, Oneshot (still playing)
@@ -14,7 +14,7 @@
 * Pokemon black & white
 * Mouthwashing
 * Deadplate, married in red, DDLC
-* ***Touchstarved***, When stars collide, Our life (both 1&2), Error143, Lost in limbo, Cupid's kiss, Broken colors, The kid at the back, Chromatic agape
+* Touchstarved, When stars collide, Our life (both 1&2), Error143, Lost in limbo, Cupid's kiss, Broken colors, The kid at the back, Chromatic agape
 * Yttd
 * Project eden's garden
 * Degrees of lewdity, course of temptation (minors <ins>**IWC**</ins> for those)
