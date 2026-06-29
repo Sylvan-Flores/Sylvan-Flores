@@ -22,7 +22,7 @@
 </p>
 
 <p align="center">
- ୭˚. ᵎᵎ <a href="https://github.com/Sylvan-Flores/Sylvan-Flores/blob/29a2a888b3abf7ff8bfa57cd32586d59c3e3c7a6/game.md">Games</a> ♬⋆.˚ <a href="https://github.com/Sylvan-Flores/Sylvan-Flores/blob/29a2a888b3abf7ff8bfa57cd32586d59c3e3c7a6/other-media.md">Other media</a> ᶻ 𝗓 𐰁 .ᐟ <a href="https://github.com/Sylvan-Flores/Sylvan-Flores/blob/29a2a888b3abf7ff8bfa57cd32586d59c3e3c7a6/Ship.md">Ships</a> ⊹ ࣪ ˖ ໒꒱
+ ୭˚. ᵎᵎ <a href="game.md">Games</a> ♬⋆.˚ <a href="other-media.md">Other media</a> ᶻ 𝗓 𐰁 .ᐟ <a href="Ship.md">Ships</a> ⊹ ࣪ ˖ ໒꒱
 </p>
 
 <p align="center">
