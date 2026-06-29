@@ -21,6 +21,8 @@
   <img src="https://i.ibb.co/TMLdtCRF/they-are-gay-your-honor.png"/>
 </p>
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ldye7zghn3twicbn6chnb5cfea&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ldye7zghn3twicbn6chnb5cfea&redirect=true)
+
 <p align="center">
   ✦•······················•✦•······················•✦
 </p>
