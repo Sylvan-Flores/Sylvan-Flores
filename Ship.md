@@ -5,7 +5,7 @@
 * HSR: Phainaxa, Mynaxa, Myphainaxa/Phaideinaxa, Ahavili, Sunaxa
 * OnS: Yuumika
 * PJEG: Kaimon
-* Mononoke: Asakame
+* Mononoke: Asakame, Kusuriuri Ri x Kusuriuri Kon
 
 ***
 
