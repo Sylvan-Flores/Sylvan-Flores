@@ -5,7 +5,7 @@
 * Danganronpa (mostly sdr2)
 * The arcana (i need more content of this game, i've played *every single* route and side stories, i **refuse** to go on dorian)
 * Honkai star rail
-* R1999 (not a single grasp on lore and i have no fucking idea what i'm doing...i might need a mentor, or multiple mentors)
+* R1999 (not a single grasp on lore and i have no fucking idea what i'm doing...i might need a mentor)
 * OFF, Hello charlotte, Oneshot (still playing)
 * Dweller's empty path, Escaped chasm
 * In stars and time
