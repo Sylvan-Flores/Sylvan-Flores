@@ -5,6 +5,7 @@
 * Danganronpa (mostly sdr2)
 * The arcana (i need more content of this game, i've played *every single* route and side stories, i **refuse** to go on dorian)
 * Honkai star rail
+* Silver palace
 * R1999 (not a single grasp on lore and i have no fucking idea what i'm doing)
 * OFF, Hello charlotte, Oneshot (still playing)
 * Dweller's empty path, Escaped chasm
