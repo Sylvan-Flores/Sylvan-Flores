@@ -1,6 +1,8 @@
 <img src="https://i.ibb.co/8g909Jn8/Untitled239-20260729144648.png" style="width: 100%; height: auto;">
 
-<img src="https://i.ibb.co/pmYbQH3/Untitled235-20260729145302.png" style="width: 100%; height: auto;">
+<p align="center">
+<img src="https://i.ibb.co/pmYbQH3/Untitled235-20260729145302.png" style="width: 80%; height: auto;">
+</p>
 
 <p align="center">
   "ɪ ᴀᴍ ᴊᴜꜱᴛ ᴀ ꜱɪᴍᴘʟᴇ ᴍᴇᴅɪᴄɪɴᴇ ꜱᴇʟʟᴇʀ."
@@ -14,7 +16,9 @@
  ✦   ̣̣ ۟    ︵  <a href="https://sylvan-flores.straw.page">Strawpage</a> ౨ৎ 𝅄 <a href="https://sylvan-flores.atabook.org/">Atabook</a> ‎-`♡´- <a href="https://en.pronouns.page/@Sylvan_Flores">Pronouns.page</a> ・ᡣ𐭩 <a href="https://guns.lol/sylvan_flores">Guns.lol</a> . ݁₊ ⊹ . 
 </p>
 
-<img src="https://i.ibb.co/chYCkkwX/Untitled244-20260729154433.png" style="width: 100%; height: auto;">
+<p align="center">
+<img src="https://i.ibb.co/chYCkkwX/Untitled244-20260729154433.png" style="width: 75%; height: auto;">
+</p>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
