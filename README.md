@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=Sylvan-Flores&color=9D6CA7&style=flat&label=APPRENTICE+WITCHES&abbreviated=true">
+  <img src="https://komarev.com/ghpvc/?username=Sylvan-Flores&color=9D6CA7&style=flat&label=MEDICINE+SELLERS&abbreviated=true">
 </p>
 
 <p align="center">
