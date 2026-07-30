@@ -13,7 +13,7 @@
 </p>
 
 <p align="center">
- ✦   ̣̣ ۟    ︵  <a href="https://sylvan-flores.straw.page">Strawpage</a> ౨ৎ 𝅄 <a href="https://sylvan-flores.atabook.org/">Atabook</a> ‎-`♡´- <a href="https://en.pronouns.page/@Sylvan_Flores">Pronouns.page</a> ・ᡣ𐭩 <a href="https://guns.lol/sylvan_flores">Guns.lol</a> . ݁₊ ⊹ . 
+ ✦   ̣̣ ۟    ︵  <a href="https://sylvan-flores.straw.page">Strawpage</a> (old) ౨ৎ 𝅄 <a href="https://sylvan-flores.atabook.org/">Atabook</a> ‎-`♡´- <a href="https://en.pronouns.page/@Sylvan_Flores">Pronouns.page</a> ・ᡣ𐭩 <a href="https://guns.lol/sylvan_flores">Guns.lol</a> ☾⋆⁺₊ <a href="https://pronouns.cc/@Sylvan_Flores">Pronouns.cc</a> . ݁₊ ⊹ . 
 </p>
 
 <p align="center">
