@@ -4,7 +4,7 @@
 * UT, DR: Kris, Noelle, Susie
 * Omori: Mari, Aubrey
 * The arcana: Asra
-* In stars and time: Siffrin
+* In stars and time: Siffrin, Loop
 * Hsr: Anaxa, Sunday
 * Dweller's empty path: Yoki
 * Adwd: Casper
