@@ -12,6 +12,7 @@
 * Touchstarved: Mihn
 * Wha: Qifrey
 * Mononoke: Kusuriuri
+* To your eternity: Fushi
 
 ## Artists/bands that i listen to frequently:
 
