@@ -24,6 +24,7 @@
 * Cavetown
 * Mother mother
 * Fish in a Birdcage
+* Cosmo Sheldrake
 * Cá Hồi Hoang
 * The Blake Robinson Synthetic Orchestra
 * Rammstein
