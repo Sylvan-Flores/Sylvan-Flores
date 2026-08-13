@@ -9,7 +9,7 @@
 * Dweller's empty path: Yoki
 * Adwd: Casper
 * Pokemon BW: N
-* Touchstarved: Mihn
+* Touchstarved: Mhin
 * Wha: Qifrey
 * Mononoke: Kusuriuri
 * To your eternity: Fushi
