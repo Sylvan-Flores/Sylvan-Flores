@@ -1,3 +1,7 @@
+<p align="center">
+(Best viewed in dark mode)
+</p>
+
 <img src="https://i.ibb.co/k611Kx0h/Untitled239-20260816194033.png" style="width: 100%; height: auto;">
 
 <p align="center">
@@ -22,6 +26,10 @@
 
 <p align="center">
 <img src="https://i.ibb.co/chYCkkwX/Untitled244-20260729154433.png" style="width: 75%; height: auto;">
+</p>
+
+<p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=IM+Fell+Double+Pica&size=30&duration=3400&pause=1000&color=B4B9D8&width=435&lines=%22Now...+let+us+hear+your+Regret.%22" alt="Typing SVG" /></a>
 </p>
 
 <p align="center">
