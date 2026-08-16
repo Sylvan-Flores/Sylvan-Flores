@@ -6,6 +6,10 @@
 <img src="https://i.ibb.co/DDh9VLHr/stars-1.gif" style="width: 1012px; height: auto;">
 </p>
 
+<p align="center">
+<img src="https://i.ibb.co/N2VTPNG9/Tumblr-l-36514154286868.gif" style="width: 1012px; height: auto;">
+</p>
+
 <img src="https://i.ibb.co/k611Kx0h/Untitled239-20260816194033.png" style="width: 100%; height: auto;">
 
 <p align="center">
