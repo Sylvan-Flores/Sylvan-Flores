@@ -9,11 +9,11 @@
 </p>
 
 <p align="center">
-  "ɪ ᴀᴍ ᴊᴜꜱᴛ ᴀ ꜱɪᴍᴘʟᴇ ᴍᴇᴅɪᴄɪɴᴇ ꜱᴇʟʟᴇʀ."
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=IM+Fell+Double+Pica&size=30&duration=3400&pause=1000&color=B4B9D8&width=435&lines=%22I+am+just+a+simple+medicine+seller.%22" alt="Typing SVG" /></a>
 </p>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=Sylvan-Flores&color=9D6CA7&style=flat&label=MEDICINE+SELLERS&abbreviated=true">
+  <img src="https://komarev.com/ghpvc/?username=Sylvan-Flores&color=9D6CA7&style=flat&label=.+˚₊‧꒰ა+☆+໒꒱+‧₊˚+.&abbreviated=true">
 </p>
 
 <p align="center">
