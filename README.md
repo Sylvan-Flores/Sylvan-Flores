@@ -27,7 +27,7 @@
 <p align="center">
   <img src="https://i.ibb.co/5WD6q5ZV/Untitled291-20260816223133.png" style="width: 30px; height: auto;">
   <img src="https://komarev.com/ghpvc/?username=Sylvan-Flores&color=9D6CA7&style=flat&label=.+˚₊‧꒰ა+☆+໒꒱+‧₊˚+.&abbreviated=true">
-  <img src="https://i.ibb.co/sdYCxvNc/Untitled289-20260816221643.png" style="width: 30px; height: auto;">
+  <img src="https://i.ibb.co/FpjGQbn/Untitled292-20260817001159.png" style="width: 30px; height: auto;">
 </p>
 
 <p align="center">
