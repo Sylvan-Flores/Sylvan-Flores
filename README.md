@@ -52,6 +52,13 @@
  ୭˚. ᵎᵎ <a href="game.md">Games</a> ♬⋆.˚ <a href="other-media.md">Other media</a> ᶻ 𝗓 𐰁 .ᐟ <a href="Ship.md">Ships</a> ♬⋆.˚ <a href="Fav.md">Fav</a> ⊹ ࣪ ˖ ໒꒱
 </p>
 
+<div align="center">
+<details>
+  <summary>My children</summary>
+  <a href="https://github.com/zachzaceace">zachzaceace</a> ☆ <a href="https://github.com/ace0fcups">ace0fcups</a> ☆ <a href="https://github.com/Redvelvetcakee">Redvelvetcakee</a>
+</details>
+</div>
+
 <img src="https://i.ibb.co/tp3Wmxcc/Untitled239-20260729144653.png" style="width: 100%; height: auto;">
 
 <p align="center">
