@@ -1,7 +1,11 @@
-<img src="https://i.ibb.co/8g909Jn8/Untitled239-20260729144648.png" style="width: 100%; height: auto;">
+<img src="https://i.ibb.co/k611Kx0h/Untitled239-20260816194033.png" style="width: 100%; height: auto;">
 
 <p align="center">
-<img src="https://i.ibb.co/pmYbQH3/Untitled235-20260729145302.png" style="width: 80%; height: auto;">
+<img src="https://i.ibb.co/5h5MQb2y/20260816-164148-0001-2.gif" style="width: 1012px; height: auto;">
+</p>
+
+<p align="center">
+<img src="https://i.ibb.co/N2VTPNG9/Tumblr-l-36514154286868.gif" style="width: 1012px; height: auto;">
 </p>
 
 <p align="center">
@@ -31,3 +35,11 @@
 </p>
 
 <img src="https://i.ibb.co/tp3Wmxcc/Untitled239-20260729144653.png" style="width: 100%; height: auto;">
+
+<p align="center">
+<img src="https://i.ibb.co/N2VTPNG9/Tumblr-l-36514154286868.gif" style="width: 1012px; height: auto;">
+</p>
+
+<p align="center">
+<img src="https://i.ibb.co/0R2K0Gv0/1000185346-combine.gif" style="width: 1012px; height: auto;">
+</p>
