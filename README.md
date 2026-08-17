@@ -55,7 +55,9 @@
 <div align="center">
 <details>
   <summary>$\color{#9D6CA7}{\textsf{My children ♡}}$</summary>
+  <img src="https://i.ibb.co/1ttk9nmp/Untitled288-20260816221436.png" style="width: 30px; height: auto;">
   <a href="https://github.com/zachzaceace">zachzaceace</a> ☆ <a href="https://github.com/ace0fcups">ace0fcups</a> ☆ <a href="https://github.com/Redvelvetcakee">Redvelvetcakee</a>
+  <img src="https://i.ibb.co/sdYCxvNc/Untitled289-20260816221643.png" style="width: 30px; height: auto;">
 </details>
 </div>
 
