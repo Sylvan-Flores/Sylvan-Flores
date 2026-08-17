@@ -25,9 +25,9 @@
 </p>
 
 <p align="center">
-  <img src="https://i.ibb.co/5WD6q5ZV/Untitled291-20260816223133.png" style="width: 30px; height: auto;">
+  <img src="https://i.ibb.co/5WD6q5ZV/Untitled291-20260816223133.png" style="width: 30px; height: auto;">&nbsp;
   <img src="https://komarev.com/ghpvc/?username=Sylvan-Flores&color=9D6CA7&style=flat&label=.+˚₊‧꒰ა+☆+໒꒱+‧₊˚+.&abbreviated=true">
-  <img src="https://i.ibb.co/FpjGQbn/Untitled292-20260817001159.png" style="width: 30px; height: auto;">
+  &nbsp;<img src="https://i.ibb.co/FpjGQbn/Untitled292-20260817001159.png" style="width: 30px; height: auto;">
 </p>
 
 <p align="center">
@@ -55,9 +55,8 @@
 <div align="center">
 <details>
   <summary>$\color{#9D6CA7}{\textsf{My children ♡}}$</summary>
-  <img src="https://i.ibb.co/1ttk9nmp/Untitled288-20260816221436.png" style="width: 30px; height: auto;">
-  <a href="https://github.com/zachzaceace">zachzaceace</a> ☆ <a href="https://github.com/ace0fcups">ace0fcups</a> ☆ <a href="https://github.com/Redvelvetcakee">Redvelvetcakee</a>
-  <img src="https://i.ibb.co/sdYCxvNc/Untitled289-20260816221643.png" style="width: 30px; height: auto;">
+  </br>
+  <a href="https://github.com/zachzaceace">zachzaceace</a> &nbsp;<img src="https://i.ibb.co/1ttk9nmp/Untitled288-20260816221436.png" style="width: 30px; height: auto;">&nbsp; <a href="https://github.com/ace0fcups">ace0fcups</a> &nbsp;<img src="https://i.ibb.co/sdYCxvNc/Untitled289-20260816221643.png" style="width: 30px; height: auto;">&nbsp; <a href="https://github.com/Redvelvetcakee">Redvelvetcakee</a>
 </details>
 </div>
 
