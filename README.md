@@ -54,7 +54,7 @@
 
 <div align="center">
 <details>
-  <summary>My children</summary>
+  <summary>$\color{#9D6CA7}{\textsf{My children ♡}}$</summary>
   <a href="https://github.com/zachzaceace">zachzaceace</a> ☆ <a href="https://github.com/ace0fcups">ace0fcups</a> ☆ <a href="https://github.com/Redvelvetcakee">Redvelvetcakee</a>
 </details>
 </div>
