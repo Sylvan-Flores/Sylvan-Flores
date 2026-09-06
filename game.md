@@ -12,7 +12,7 @@
 * In stars and time
 * A date with death (again, still playing, i'll finish it i swear)
 * A date with death 2 (demo)
-* Pokemon black & white
+* Pokemon black & white, pokemon legends: Arceus
 * Mouthwashing
 * Deadplate, married in red, DDLC
 * Touchstarved, When stars collide, Our life (both 1&2), Lost in limbo, Cupid's kiss, Broken colors, The kid at the back, Chromatic agape
