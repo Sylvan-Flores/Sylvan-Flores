@@ -13,7 +13,7 @@
 <img src="https://i.ibb.co/FqcdkBn7/Untitled239-20260923211247-1.png" style="width: 100%; height: auto;">
 
 <p align="center">
-<img src="https://i.ibb.co/ccqpttYs/20260923-161136-0002-3-1.gif" style="width: 1012px; height: auto;">
+<img src="https://i.ibb.co/Mx5G7N1F/68747470733a2f2f692e6962622e636f2f4b43444844336b2f32303236303932332d3136313133362d303030322d332e6769.gif" style="width: 1012px; height: auto;">
 </p>
 
 <p align="center">
