@@ -54,7 +54,7 @@
 
 <div align="center">
 <details>
-  <summary>$\color{#80B397}{\textsf{My children ♡}}$</summary>
+  <summary>$\color{#80B397}{\textsf{My family ♡}}$</summary>
   </br>
   <a href="https://github.com/zachzaceace">zachzaceace</a> &nbsp;<img src="https://i.ibb.co/R4Jwf0SQ/Untitled288-20260816221436.png" style="width: 30px; height: auto;">&nbsp; <a href="https://github.com/ace0fcups">ace0fcups</a> &nbsp;<img src="https://i.ibb.co/0y6qPYKw/Untitled289-20260816221643.png" style="width: 30px; height: auto;">&nbsp; <a href="https://github.com/Redvelvetcakee">Redvelvetcakee</a>
 </details>
