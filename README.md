@@ -31,7 +31,7 @@
 </p>
 
 <p align="center">
- ✦   ̣̣ ۟    ︵  <a href="https://sylvan-flores.straw.page">Strawpage</a> ౨ৎ 𝅄 <a href="https://sylvan-flores.atabook.org/">Atabook</a> ‎-`♡´- <a href="https://en.pronouns.page/@Sylvan_Flores">Pronouns.page</a> ・ᡣ𐭩 <a href="https://guns.lol/sylvan_flores">Guns.lol</a> ☾⋆⁺₊ <a href="https://pronouns.cc/@Sylvan_Flores">Pronouns.cc</a> . ݁₊ ⊹ . 
+ ⊹₊˚‧︵  <a href="https://sylvan-flores.straw.page">Strawpage</a> ✦ <a href="https://sylvan-flores.atabook.org/">Atabook</a> ‎✦ <a href="https://en.pronouns.page/@Sylvan_Flores">Pronouns.page</a> ✦ <a href="https://guns.lol/sylvan_flores">Guns.lol</a> ✦ <a href="https://pronouns.cc/@Sylvan_Flores">Pronouns.cc</a> ︵‧˚₊⊹
 </p>
 
 <p align="center">
@@ -49,12 +49,12 @@
 </p>
 
 <p align="center">
- ୭˚. ᵎᵎ <a href="game.md">Games</a> ♬⋆.˚ <a href="other-media.md">Other media</a> ᶻ 𝗓 𐰁 .ᐟ <a href="Ship.md">Ships</a> ♬⋆.˚ <a href="Fav.md">Fav</a> ⊹ ࣪ ˖ ໒꒱
+ ⊹₊˚‧︵ <a href="game.md">Games</a> ✦ <a href="other-media.md">Other media</a> ✦ <a href="Ship.md">Ships</a> ✦ <a href="Fav.md">Fav</a> ︵‧˚₊⊹
 </p>
 
 <div align="center">
 <details>
-  <summary>$\color{#80B397}{\textsf{My family ♡}}$</summary>
+  <summary>$\color{#80B397}{\textsf{୨ৎ My family ୨ৎ}}$</summary>
   </br>
   <a href="https://github.com/zachzaceace">zachzaceace</a> &nbsp;<img src="https://i.ibb.co/R4Jwf0SQ/Untitled288-20260816221436.png" style="width: 30px; height: auto;">&nbsp; <a href="https://github.com/ace0fcups">ace0fcups</a> &nbsp;<img src="https://i.ibb.co/0y6qPYKw/Untitled289-20260816221643.png" style="width: 30px; height: auto;">&nbsp; <a href="https://github.com/Redvelvetcakee">Redvelvetcakee</a>
 </details>
