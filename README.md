@@ -31,7 +31,7 @@
 </p>
 
 <p align="center">
- ⊹₊˚‧︵  <a href="https://sylvan-flores.straw.page">Strawpage</a> ✦ <a href="https://sylvan-flores.atabook.org/">Atabook</a> ‎✦ <a href="https://en.pronouns.page/@Sylvan_Flores">Pronouns.page</a> ✦ <a href="https://guns.lol/sylvan_flores">Guns.lol</a> ✦ <a href="https://pronouns.cc/@Sylvan_Flores">Pronouns.cc</a> ︵‧˚₊⊹
+ $\color{#D6BF97}{\textsf{⊹₊˚‧︵}}$  <a href="https://sylvan-flores.straw.page">Strawpage</a> $\color{#D6BF97}{\textsf{✦}}$ <a href="https://sylvan-flores.atabook.org/">Atabook</a> $\color{#D6BF97}{\textsf{‎✦}}$ <a href="https://en.pronouns.page/@Sylvan_Flores">Pronouns.page</a> $\color{#D6BF97}{\textsf{✦}}$ <a href="https://guns.lol/sylvan_flores">Guns.lol</a> $\color{#D6BF97}{\textsf{✦}}$ <a href="https://pronouns.cc/@Sylvan_Flores">Pronouns.cc</a> $\color{#D6BF97}{\textsf{︵‧˚₊⊹}}$
 </p>
 
 <p align="center">
@@ -49,7 +49,7 @@
 </p>
 
 <p align="center">
- ⊹₊˚‧︵ <a href="game.md">Games</a> ✦ <a href="other-media.md">Other media</a> ✦ <a href="Ship.md">Ships</a> ✦ <a href="Fav.md">Fav</a> ︵‧˚₊⊹
+ $\color{#D6BF97}{\textsf{⊹₊˚‧︵}}$ <a href="game.md">Games</a> $\color{#D6BF97}{\textsf{✦}}$ <a href="other-media.md">Other media</a> $\color{#D6BF97}{\textsf{✦}}$ <a href="Ship.md">Ships</a> $\color{#D6BF97}{\textsf{✦}}$ <a href="Fav.md">Fav</a> $\color{#D6BF97}{\textsf{︵‧˚₊⊹}}$
 </p>
 
 <div align="center">
