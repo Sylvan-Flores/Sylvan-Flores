@@ -1,5 +1,6 @@
 <p align="center">
 (Best viewed in dark mode)
+(All graphics here are made by me)
 </p>
 
 <p align="center">
