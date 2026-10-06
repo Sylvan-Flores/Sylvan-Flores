@@ -5,7 +5,7 @@
 * Omori: Mari, Aubrey
 * The arcana: Asra
 * In stars and time: Siffrin, Loop
-* Hsr: Anaxa, Sunday, Phainon, Cyrene
+* Hsr: Anaxa, Sunday, Phainon, Cyrene, Pearl
 * Dweller's empty path: Yoki
 * Adwd: Casper
 * Pokemon BW: N
