@@ -1,11 +1,12 @@
 ## Ship
 
 * Danganronpa: Hinakoma, Kamukoma
-* WHA: ***Orufrey***
+* WHA: Orufrey
 * HSR: Phainaxa, Flamenaxa, Mynaxa, Myphainaxa/Phaideinaxa, Ahavili, Sunaxa
+* Pokemon: ***NVolo/VoloN***
 * OnS: Yuumika
 * PJEG: Kaimon
-* Mononoke: Asakame, ***Kusuriuri Ri x Kusuriuri Kon***
+* Mononoke: Asakame, Kusuriuri Ri x Kusuriuri Kon
 
 ***
 
