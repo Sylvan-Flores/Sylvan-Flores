@@ -8,7 +8,7 @@
 * Hsr: Anaxa, Sunday, Phainon, Cyrene, Pearl
 * Dweller's empty path: Yoki
 * Adwd: Casper
-* Pokemon BW: N
+* Pokemon: N, Volo
 * Touchstarved: Mhin
 * Wha: Qifrey
 * Mononoke: Kusuriuri
