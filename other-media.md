@@ -49,6 +49,8 @@
 * Tears of the mountain
 * Dogs of the Empire
 * Reehal
+* Haunted hotel (ss1)
+* Gravity falls (the last time i touched this fandom was years ago, i barely remember anything)
 
 ***
 
