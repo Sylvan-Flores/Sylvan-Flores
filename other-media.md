@@ -21,7 +21,7 @@
 * To your eternity (anime, manga)
 * Welcome to demon school! Iruma-kun (anime, manga)
 * Land of the lustrous (anime)
-* ***Witch hat atelier*** (anime, manga)
+* Witch hat atelier (anime, manga)
 * Veil
 * ***Mononoke*** (ayakashi; 2007; movie 1, 2 & 3)
 * Kimera
@@ -49,7 +49,7 @@
 * Tears of the mountain
 * Dogs of the Empire
 * Reehal
-* Haunted hotel (ss1)
+* ***Haunted hotel (ss1)***
 * Gravity falls (the last time i touched this fandom was years ago, i barely remember anything)
 
 ***
