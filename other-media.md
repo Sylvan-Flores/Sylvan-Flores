@@ -23,7 +23,7 @@
 * Land of the lustrous (anime)
 * ***Witch hat atelier*** (anime, manga)
 * Veil
-* ***Mononoke*** (ayakashi, 2007, movie 1, 2 & 3)
+* ***Mononoke*** (ayakashi; 2007; movie 1, 2 & 3)
 * Kimera
 * To strip the flesh
 
