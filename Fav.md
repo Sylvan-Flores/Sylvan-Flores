@@ -29,3 +29,4 @@
 * The Blake Robinson Synthetic Orchestra
 * Rammstein
 * And One
+* FLAVOR FOLEY
