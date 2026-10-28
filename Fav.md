@@ -13,6 +13,7 @@
 * Wha: Qifrey
 * Mononoke: Kusuriuri
 * To your eternity: Fushi
+* Haunted hotel: Abaddon, Nathan
 
 ## Artists/bands that i listen to frequently:
 
