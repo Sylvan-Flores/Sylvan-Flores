@@ -37,9 +37,9 @@
 <details>
   <summary>$\color{#80B397}{\textsf{୨ৎ About me ୨ৎ}}$</summary>
   </br>
-  $\color{#D6BF97}{\textsf{꒰ ঌ &nbsp 𓏲ּ𝄢˖&nbsp&nbsp  Sylvan &nbsp ︵   ｡ Ꮺ ˚}}$
+  $\color{#D6BF97}{\textsf{꒰ ঌ &nbsp 𓏲ּ𝄢˖&nbsp  Sylvan &nbsp&nbsp ︵   ｡ Ꮺ ˚}}$
   </br>
-  $\color{#D6BF97}{\textsf{ 𓏲⠀ ：ྀི&nbsp    he   ノ  they⠀ ੭  ̣̣̣ ͜𓏫}}$
+  $\color{#D6BF97}{\textsf{ 𓏲 ：ྀི&nbsp   he   ノ  they⠀ ੭ ̣̣̣ ͜𓏫}}$
   </br>
   $\color{#D6BF97}{\textsf{ ⿻   ೀ ⠀  19 y.o ⠀꒰ᐢ. .ᐢ꒱   ♬  ꒱}}$
   </br>
