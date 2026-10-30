@@ -33,6 +33,18 @@
   &nbsp;<img src="https://i.ibb.co/My8KNXjY/Untitled292-20260817001159.png" style="width: 30px; height: auto;">
 </p>
 
+<div align="center">
+<details>
+  <summary>$\color{#80B397}{\textsf{୨ৎ About me ୨ৎ}}$</summary>
+  </br>
+  $\color{#D6BF97}{\textsf{꒰ ঌ  𓏲ּ𝄢˖  Sylvan  ︵   ｡ Ꮺ ˚}}$
+  </br>
+  $\color{#D6BF97}{\textsf{ 𓏲⠀ ：ྀི    he      they⠀⠀ ੭ ⠀ ̣̣̣ ͜𓏫}}$
+  </br>
+  $\color{#D6BF97}{\textsf{ ⿻   ೀ ⠀  19 y.o ⠀꒰ᐢ. .ᐢ꒱   ♬  ꒱}}$
+</details>
+</div>
+
 <p align="center">
  $\color{#D6BF97}{\textsf{⊹₊˚‧︵}}$  <a href="https://sylvan-flores.straw.page">Strawpage</a> $\color{#D6BF97}{\textsf{✦}}$ <a href="https://sylvan-flores.atabook.org/">Atabook</a> $\color{#D6BF97}{\textsf{‎✦}}$ <a href="https://en.pronouns.page/@Sylvan_Flores">Pronouns.page</a> $\color{#D6BF97}{\textsf{✦}}$ <a href="https://zyo.lol/sylvan_flores">Zyo.lol</a> $\color{#D6BF97}{\textsf{︵‧˚₊⊹}}$
 </p>
