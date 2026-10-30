@@ -37,7 +37,7 @@
 <details>
   <summary>$\color{#80B397}{\textsf{୨ৎ About me ୨ৎ}}$</summary>
   </br>
-  $\color{#D6BF97}{\textsf{꒰ ঌ &nbsp 𓏲ּ𝄢˖&nbsp  Sylvan  ︵   ｡ Ꮺ ˚}}$
+  $\color{#D6BF97}{\textsf{꒰ ঌ &nbsp 𓏲ּ𝄢˖&nbsp&nbsp  Sylvan &nbsp ︵   ｡ Ꮺ ˚}}$
   </br>
   $\color{#D6BF97}{\textsf{ 𓏲⠀ ：ྀི&nbsp    he   ノ  they⠀ ੭  ̣̣̣ ͜𓏫}}$
   </br>
