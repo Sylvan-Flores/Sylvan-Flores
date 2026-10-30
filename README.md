@@ -1,3 +1,5 @@
+<!-- If you need help with the README file, you can ask me instead of peeking at my code -->
+
 <p align="center">
 (Best viewed in dark mode)
 </p>
