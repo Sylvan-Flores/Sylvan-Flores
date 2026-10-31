@@ -48,9 +48,9 @@
   $\color{#D6BF97}{\textsf{ֺּׅ𓏽⑅ 9w1 so/sx 926 ༉‧₊˚.}}$
   </br>
   </br>
-  <img src="https://i.ibb.co/23cLxgmr/ezgif-cropped-2.png" title="Quoiromantic" alt="Quoiromantic flag" style="width: 30px; height: auto;">&nbsp&nbsp
-  <img src="https://i.ibb.co/991hg3WW/ezgif-cropped-3.png" title="Queerplatonic" alt="Queerplatonic flag" style="width: 30px; height: auto;">&nbsp&nbsp
-  <img src="https://i.ibb.co/Myb1ZjmY/ezgif-cropped.png" title="Aceflux" alt="Aceflux flag" style="width: 30px; height: auto;">
+  <img src="https://i.ibb.co/23cLxgmr/ezgif-cropped-2.png" title="Quoiromantic" alt="Quoiromantic flag" style="width: 40px; height: auto;">&nbsp&nbsp
+  <img src="https://i.ibb.co/991hg3WW/ezgif-cropped-3.png" title="Queerplatonic" alt="Queerplatonic flag" style="width: 40px; height: auto;">&nbsp&nbsp
+  <img src="https://i.ibb.co/Myb1ZjmY/ezgif-cropped.png" title="Aceflux" alt="Aceflux flag" style="width: 40px; height: auto;">
 </details>
 </div>
 
