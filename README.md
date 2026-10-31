@@ -46,6 +46,7 @@
   $\color{#D6BF97}{\textsf{ ⿻   ೀ ⠀19 y.o ⠀꒰ᐢ. .ᐢ꒱   ♬  ꒱}}$
   </br>
   $\color{#D6BF97}{\textsf{ֺּׅ𓏽⑅ 9w1 so/sx 926 ༉‧₊˚.}}$
+  </br>
   <img src="https://i.ibb.co/LX4jJdGm/merged-image-2026-10-31-T07-37-03.png" style="width: 100px; height: auto;">
 </details>
 </div>
