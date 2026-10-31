@@ -48,7 +48,7 @@
   $\color{#D6BF97}{\textsf{ֺּׅ𓏽⑅ 9w1 so/sx 926 ༉‧₊˚.}}$
   </br>
   <img src="https://i.ibb.co/fYwyz1GX/Untitled360-20261031143629.png" alt="Vietnam" style="width: 30px; height: auto;">&nbsp&nbsp
-  <img src="https://i.ibb.co/0jNdmV8L/images-3.png" alt="Achillean" style="width: 30px; height: auto;">&nbsp&nbsp
+  <img src="https://i.ibb.co/QjThkxjy/images-5.png" alt="Queerplatonic" style="width: 30px; height: auto;">&nbsp&nbsp
   <img src="https://i.ibb.co/qMkBLW6b/images-4.jpg" alt="Aceflux" style="width: 30px; height: auto;">
 </details>
 </div>
