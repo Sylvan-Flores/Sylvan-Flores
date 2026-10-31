@@ -1,4 +1,4 @@
-<!-- If you need help with the README file, you can ask me instead of peeking at my code -->
+<!-- Hey do have trouble coding your README? Dont be afraid to ask, i will try to help -->
 
 <p align="center">
 (Best viewed in dark mode)
@@ -50,7 +50,7 @@
 </div>
 
 <p align="center">
- $\color{#D6BF97}{\textsf{⊹₊˚‧︵}}$  <a href="https://sylvan-flores.straw.page">Strawpage</a> $\color{#D6BF97}{\textsf{✦}}$ <a href="https://sylvan-flores.atabook.org/">Atabook</a> $\color{#D6BF97}{\textsf{‎✦}}$ <a href="https://en.pronouns.page/@Sylvan_Flores">Pronouns.page</a> $\color{#D6BF97}{\textsf{✦}}$ <a href="https://zyo.lol/sylvan_flores">Zyo.lol</a> $\color{#D6BF97}{\textsf{︵‧˚₊⊹}}$
+ $\color{#D6BF97}{\textsf{⊹₊˚‧︵}}$  <a href="https://sylvan-flores.straw.page">Strawpage</a> $\color{#D6BF97}{\textsf{✦}}$ <a href="https://zyo.lol/sylvan_flores">Zyo.lol</a> $\color{#D6BF97}{\textsf{‎✦}}$ <a href="https://sylvan-flores.atabook.org/">Atabook</a> $\color{#D6BF97}{\textsf{✦}}$ <a href="https://en.pronouns.page/@Sylvan_Flores">Pronouns.page</a> $\color{#D6BF97}{\textsf{︵‧˚₊⊹}}$
 </p>
 
 <p align="center">
