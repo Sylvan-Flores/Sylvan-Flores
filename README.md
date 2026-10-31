@@ -26,7 +26,7 @@
 </p>
 
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Tiny5&size=27&pause=1000&center=true&color=80B397&width=435&lines=%22You+said+you+have+a+dream...;That+dream...+Make+it+come+true!%22" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Tiny5&size=27&duration=2000&pause=1200&center=true&color=80B397&width=435&lines=%22You+said+you+have+a+dream...;That+dream...+Make+it+come+true!%22" alt="Typing SVG" /></a>
 </p>
 
 <p align="center">
@@ -58,7 +58,7 @@
 </p>
 
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Tiny5&size=27&pause=1000&center=true&color=80B397&width=435&lines=%22Make+your+wonderful+dream+a+reality%2C;and+it+will+become+your+truth!%22" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Tiny5&size=27&duration=2000&pause=1200&center=true&color=80B397&width=435&lines=%22Make+your+wonderful+dream+a+reality%2C;and+it+will+become+your+truth!%22" alt="Typing SVG" /></a>
 </p>
 
 <p align="center">
