@@ -45,7 +45,7 @@
   </br>
   $\color{#D6BF97}{\textsf{ ⿻   ೀ 19 years old ꒰ᐢ. .ᐢ꒱   ♬  ꒱}}$
   </br>
-  $\color{#D6BF97}{\textsf{ֺּׅ𓏽⑅ ESFJ 9w1 so/sx 926 ༉‧₊˚.}}$
+  $\color{#D6BF97}{\textsf{ֺּׅ𓏽⑅ 9w1 so/sx 926 ༉‧₊˚.}}$
   </br>
   </br>
   <img src="https://i.ibb.co/23cLxgmr/ezgif-cropped-2.png" title="Quoiromantic" alt="Quoiromantic flag" style="width: 35px; height: auto;">&nbsp&nbsp
