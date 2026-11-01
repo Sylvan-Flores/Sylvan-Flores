@@ -43,7 +43,7 @@
   </br>
   $\color{#D6BF97}{\textsf{ 𓏲 ：ྀི&nbsp   he   ノ  they⠀ ੭ ̣̣̣ ͜𓏫}}$
   </br>
-  $\color{#D6BF97}{\textsf{ ⿻   ೀ ⠀19 years old ⠀꒰ᐢ. .ᐢ꒱   ♬  ꒱}}$
+  $\color{#D6BF97}{\textsf{ ⿻   ೀ 19 years old ꒰ᐢ. .ᐢ꒱   ♬  ꒱}}$
   </br>
   $\color{#D6BF97}{\textsf{ֺּׅ𓏽⑅ ESFJ 9w1 so/sx 926 ༉‧₊˚.}}$
   </br>
