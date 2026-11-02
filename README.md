@@ -45,7 +45,7 @@
   </br>
   $\color{#D6BF97}{\textsf{ ⿻   ೀ 19 y.o ꒰ᐢ. .ᐢ꒱   ♬  ꒱}}$
   </br>
-  $\color{#D6BF97}{\textsf{ֺּׅ𓏽⑅ N hvy kin ༉‧₊˚.}}$
+  $\color{#D6BF97}{\textsf{ֺּׅ𓏽⑅ N heavy kin ༉‧₊˚.}}$
   </br>
   </br>
   <img src="https://i.ibb.co/23cLxgmr/ezgif-cropped-2.png" title="Quoiromantic" alt="Quoiromantic flag" style="width: 35px; height: auto;">&nbsp&nbsp
