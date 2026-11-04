@@ -52,6 +52,7 @@
   <img src="https://i.ibb.co/Myb1ZjmY/ezgif-cropped.png" title="Aceflux" alt="Aceflux flag" style="width: 35px; height: auto;">
   </br>
 
+  
   $\color{#D6BF97}{\textsf{ESFJ 9w1 so/sx 926}}$
 </details>
 </div>
