@@ -7,6 +7,8 @@
 * Honkai star rail
 * Silver palace
 * R1999 (not a single grasp on lore and i have no fucking idea what i'm doing)
+* Pjsk (newbie)
+* Limbus company (also newbie 🥀)
 * OFF, Hello charlotte, Oneshot (still playing)
 * Dweller's empty path, Escaped chasm
 * In stars and time
