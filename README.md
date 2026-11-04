@@ -47,7 +47,7 @@
   </br>
   $\color{#D6BF97}{\textsf{ֺּׅ𓏽⑅ N heavy kin ༉‧₊˚.}}$
   </br>
-  <img src="https://i.ibb.co/23cLxgmr/ezgif-cropped-2.png" title="Quoiromantic" alt="Quoiromantic flag" style="width: 35px; height: auto;">&nbsp&nbsp
+  <img src="https://i.ibb.co/G4tCqp3n/ext-1fac190da80cc6b66b7cf2963ba39d5b-ezgif-com-crop.png" title="Abroromantic" alt="Abroromantic flag" style="width: 35px; height: auto;">&nbsp&nbsp
   <img src="https://i.ibb.co/991hg3WW/ezgif-cropped-3.png" title="Queerplatonic" alt="Queerplatonic flag" style="width: 35px; height: auto;">&nbsp&nbsp
   <img src="https://i.ibb.co/F4VCchkK/ezgif-cropped-1.png" title="Aceflux" alt="Aceflux flag" style="width: 35px; height: auto;">
   </br>
