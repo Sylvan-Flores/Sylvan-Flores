@@ -53,7 +53,7 @@
   </br>
 
   
-  $\color{#D6BF97}{\textsf{9w1 so/sx 926}}$
+  $\color{#D6BF97}{\textsf{9w1 so/sx 925}}$
 </details>
 </div>
 
