@@ -53,7 +53,7 @@
   </br>
 
   
-  $\color{#D6BF97}{\textsf{9w1 so/sx 925 phleg-sang sCo[A]/I/}}$
+  $\color{#D6BF97}{\textsf{5w4 sx/so 592 phleg-sang sCo[A]/I/}}$
 </details>
 </div>
 
