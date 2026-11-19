@@ -53,7 +53,7 @@
   </br>
 
   
-  $\color{#D6BF97}{\textsf{5w4 sx/so 592 phleg-mel Rco[A]/I/}}$
+  $\color{#D6BF97}{\textsf{INFJ 5w4 sx/so 592 phleg-mel rCo[A]/I/}}$
 </details>
 </div>
 
